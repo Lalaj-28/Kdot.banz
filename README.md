@@ -1,0 +1,2 @@
+# Kdot.banz
+Regedit aimbot
